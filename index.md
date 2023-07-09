@@ -58,6 +58,21 @@ We may update our Privacy Policy from time to time. Thus, you are advised to rev
 
 This policy is effective as of 2023-05-24
 
+**Icons and Logos**
+
+<a href="https://www.vecteezy.com/free-vector/llama-icon">Llama Icon Vectors by Vecteezy</a>
+ 
+<a href="https://www.flaticon.com/free-icons/shark" title="shark icons">Shark icons created by BZZRINCANTATION - Flaticon</a>
+ 
+<a href="https://www.flaticon.com/free-icons/shark" title="shark icons">Shark icons created by Freepik - Flaticon</a>
+ 
+<a href="https://www.flaticon.com/free-icons/pirate" title="pirate icons">Pirate icons created by Smashicons - Flaticon</a>
+ 
+<a href="https://www.flaticon.com/free-icons/treasure" title="treasure icons">Treasure icons created by Freepik - Flaticon</a>
+ 
+<a href="https://www.flaticon.com/free-icons/skull" title="skull icons">Skull icons created by Freepik - Flaticon</a>
+ 
+
 **Contact Us**
 
 If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at quinnwinterllc+minesweeperfriends@gmail.com.
